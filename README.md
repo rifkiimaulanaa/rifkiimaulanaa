@@ -8,4 +8,4 @@ Saya seorang Mahasiswa  [Dari Politeknik Negeri Lhokseumawe]([http://pnl.ac.id/i
 
 Saya tertarik dengan BACK-END DEV SEJAK 2022.<br>
 
-Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Instagram](https://instagram.com/rifkimaulana._._?igshid=YTQwZjQ0NmI0OA==)ku ya.
+Jika kamu tertarik untuk berkenalan denganku, silakan ikuti akun [Instagram](https://instagram.com/rifkimaulana._._?igshid=YTQwZjQ0NmI0OA==) ku ya.
